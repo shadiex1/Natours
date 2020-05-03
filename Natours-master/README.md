@@ -1,1 +1,0 @@
-Natours project landing page
